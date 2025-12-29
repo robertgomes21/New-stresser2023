@@ -12,4 +12,4 @@ Cheap plans, starting as low as $10/m.
 Botnet methods selling for a cheap price.
 No login logs or attack logs, we value your privacy.
 Bypass for things like Cloudflare UAM, Hcaptcha, Recaptcha, OVH, NFO and more! / Bypasses for things like Cloudflare UAM, Hcaptcha, Recaptcha, OVH, NFO and more!
-Kind regards, https://t.me/susstressernew2025 | https://susstresser.click/
+Kind regards, https://t.me/newofficalsusstresser | https://susstresser.com/ 
