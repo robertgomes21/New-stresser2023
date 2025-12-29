@@ -1,7 +1,7 @@
 # New-stresser2025
 Powerfull IP Stresser / DDoS Attack Tool
 
-🔥 susstresser.xyz | the most reliable Stresser | Best API on the market. | Origin Selection | Botnet methods 🚰
+🔥 susstresser.com | the most reliable Stresser | Best API on the market. | Origin Selection | Botnet methods 🚰
 
 Features:
 
